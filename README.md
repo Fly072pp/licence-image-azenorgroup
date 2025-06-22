@@ -14,7 +14,7 @@
 
 ## Propriété et création
 
-Ce logo a été **créé intégralement par Fly_0**. Toute reproduction, copie, modification, distribution, diffusion ou utilisation, partielle ou totale, est **strictement interdite** sans autorisation écrite préalable.
+Ce logo a été **créé intégralement par Fly_0**. Toute reproduction, copie, modification, distribution, diffusion ou utilisation, partielle ou totale, est **strictement interdite** sans autorisation écrite préalable.\n
 Toute reproduction, copie, modification, distribution, diffusion ou utilisation, partielle ou totale, est exeptionellement autorisé à theo_10600 et paulannes.
 
 ## Conditions d'utilisation
